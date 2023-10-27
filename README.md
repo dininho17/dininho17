@@ -8,7 +8,4 @@
 
 
 
-
-https://media.tenor.com/62Si9rLjoZsAAAAd/anao-dance.gif
-
-
+  https://media.tenor.com/rRFR6WbcsuQAAAAd/droid-capital-nft-droid-dao.gif
