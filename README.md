@@ -7,5 +7,4 @@
 
 
 
-
-  https://media.tenor.com/rRFR6WbcsuQAAAAd/droid-capital-nft-droid-dao.gif
+![](https://media.tenor.com/GletI2LorkUAAAAd/happy-celebration.gif)
